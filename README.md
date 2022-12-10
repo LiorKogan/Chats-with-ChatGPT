@@ -80,14 +80,6 @@ You can use the rosemary by sprinkling it over the cat before cooking. This will
 
 ---
 
-What would Kant think of Derrida?
-
-Immanuel Kant would likely be highly critical of Jacques Derrida's deconstructionist approach to philosophy. Kant was a strong proponent of rational thought and the use of logical reasoning in philosophical discourse. He also believed in the existence of an objective morality and truth, which Derrida's deconstructionist approach challenges. Kant would likely view Derrida's ideas as undermining the foundations of philosophical inquiry.
-
-What would Derrida think of Kant?
-
-Jacques Derrida would likely be critical of Immanuel Kant's approach to philosophy. Derrida believed that language and the written word can be inherently indeterminate and open to multiple interpretations. He would likely view Kant's emphasis on logical reasoning and objective truth as overly restrictive and limiting. He would likely argue that Kant's philosophy fails to take into account the nuances and ambiguities of language and the complexity of human experience.
-
 What would Kant think about cats?
 
 Immanuel Kant likely had a fondness for cats. He kept a few cats in his home, which he treated as part of his family, and was known to take them for walks in his hometown of Königsberg. Kant was said to have admired cats for their independence and intelligence, and he even wrote a short treatise on the ethics of cat ownership.
