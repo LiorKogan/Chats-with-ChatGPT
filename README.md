@@ -132,7 +132,7 @@ When did Kant wrote this book?
 
 Immanuel Kant wrote Kant's Cat Songs and Rhymes sometime in the late 18th century, though the exact date is unknown. The book was published posthumously in 1807.
 
-What did Kant said to the sinner cat?
+What did Kant say to the sinner cat?
 
 Immanuel Kant wrote a song titled "A Sinner Cat" in Kant's Cat Songs and Rhymes. In the song, Kant expresses his sympathy for a cat that has been punished for its misdeeds, writing, "Oh, my poor little sinner,/ I'm sure you did no wrong./ Your punishment was too severe:/ It didn't fit the crime./ I wish I could make it better,/ But I'm sure it's too late./ You must accept your punishment,/ And nevermore go astray."
 
