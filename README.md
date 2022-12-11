@@ -78,6 +78,22 @@ How would you use the rosemary with the cat?
 
 You can use the rosemary by sprinkling it over the cat before cooking. This will give the cat a subtle, herbal flavor and aroma. You can also mix the rosemary with some olive oil and garlic, and rub the mixture over the cat before roasting.
 
+Should I skin the cat first?
+
+It is not necessary to skin the cat before cooking it. However, if you would like to do so, you can make a small incision at the base of the neck and peel the skin away. Be sure to remove all of the fur from the cat before cooking.
+
+I heard that there are many ways to skin a cat
+
+Yes, there are many ways to skin a cat. The most common way is to make a small incision at the base of the neck and peel the skin away. Alternatively, you can make a larger incision and use a pair of pliers to pull the skin away from the body.
+
+Should I remove the fur for Sphinx cats as well?
+
+Yes, it is important to remove the fur from Sphinx cats before cooking them. This is because the fur can be difficult to digest and can give the meat an unpleasant texture.
+
+but Sphinx cats have no fur
+
+That is true, Sphinx cats have no fur. However, it is still important to remove any remaining fur from the cat before cooking it. This can be done with a pair of tweezers or a razor.
+
 ---
 
 What would Kant think about cats?
